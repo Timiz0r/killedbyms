@@ -1,1 +1,1 @@
-# killedbyms
+https://killedby.ms/
